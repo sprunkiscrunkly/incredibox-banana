@@ -58,4 +58,4 @@ Jump into the fun world of Incredibox Banana! Create amazing music with quirky c
 
 [Play Incredibox Banana Now - It's Free!](https://sprunkiscrunkly.com/incredibox-banana/)
 
-Incredibox Banana Community.
+[Incredibox Banana Community](https://communityin.oppo.com/thread/1776503115881644033)
